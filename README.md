@@ -1,0 +1,2 @@
+# Kodluyoruz-insertigShort
+İNSERTİNG SHORT
